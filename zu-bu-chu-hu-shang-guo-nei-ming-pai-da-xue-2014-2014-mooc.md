@@ -43,7 +43,5 @@
 
 ##### **5.台湾——明德在线**
 
-![](/assets/import5.png)![](/assets/impor6t.png)
-
 
 
